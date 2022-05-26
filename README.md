@@ -1,2 +1,0 @@
-# WMD-FoxyMoviesTheaterRoom
-WMD ASSIGNMENT
